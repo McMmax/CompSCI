@@ -1,2 +1,2 @@
 # CompSCI
-season february bracket ask current melt expand celery aim flavor food found slam lava canoe banner city goose pool attack type donate mosquito vast execute
+answer innocent clinic lake end because response erupt canvas clever spy swarm harsh section bridge teach flock tail brain zebra tool order quantum use execute
